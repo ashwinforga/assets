@@ -1,0 +1,4 @@
+## Bio:
+
+Ashwin is the Democratic nominee for Georgia State Senate in District 48. He is a Johns Creek native and son of immigrants dedicated to public service and advocacy. He has worked with nonprofits, startups, and small businesses to use technology for the public interest and create jobs. As a civil servant, Ramaswami worked at the Cybersecurity and Infrastructure Security Agency (CISA) on cybersecurity and election security, working with state and local election offices to secure the 2020 and 2022 elections. Ashwin also worked as a legal fellow in the Georgia Attorney General’s Consumer Protection Division. Ashwin would break barriers as the first Indian American in the Georgia state legislature. He would be the first Gen Z State Senator in Georgia and the only Georgia state legislator with a computer science and a law degree.
+
